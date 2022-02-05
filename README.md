@@ -1,0 +1,2 @@
+- Hey, I'm ffreakyddeaky. I'm a student at Western Oregon University majoring in computer science. 
+- I'm just trying to learn as much as possible. 
